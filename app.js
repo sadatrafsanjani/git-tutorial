@@ -4,4 +4,5 @@ New modification
 
 Dr. Strangelove
 
-Stanly Kubrick
+Stanley Kubrick
+
