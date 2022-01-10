@@ -4,4 +4,4 @@ New modification
 
 Dr. Strangelove
 
-Stanly Kubrick
+Stanlyyyy Kubrick
